@@ -8,6 +8,8 @@ Se gli argomenti proposti non saranno ritenuti pertinenti in alcun modo, verrann
 
 NON è gradita la pubblicità per attività commerciali private; ci sono altri gruppi appositamente creati a tale scopo.
 
+Le persone del gruppo devono permettere di essere contattate via messaggio Facebook.
+
 La discussione su ogni argomento (NB: anche politico) dovrà mantenersi nei toni e modi adeguati e rispettosi; nel momento in cui ciò verrà a mancare, si provvederà a rimuovere il post.
 
 Se una persona dovesse eccedere con comportamenti offensivi e poco opportuni gli amministratori avranno il dovere di cancellarne i commenti quindi, nel caso si ripeta, di bloccare l'utente per un certo tempo. Dopodiché, l'utente sarà reinserito, ma alla seconda segnalazione sarà bannato definitivamente.
