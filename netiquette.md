@@ -1,6 +1,6 @@
 # Netiquette
 
-Ovvero, come usare il gruppo Facebook [Sei di Desio se..]() nel pieno rispetto di sé stessi e degli altri.
+Ovvero, come usare il gruppo Facebook [Sei di Desio se..](https://www.facebook.com/groups/823777737638221) nel pieno rispetto di sé stessi e degli altri.
 
 ## Premessa
 
