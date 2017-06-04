@@ -18,3 +18,15 @@ Una notizia allarmistica non può essere ricondivisa se è sprovvista di riferim
 2. di aver effettuato una segnalazione alle forze dell'ordine.
 
 Diversamente è solo un danno alla collettività.
+
+## 2. Annunci di lavoro
+
+Gli annunci di lavoro devono essere rivolti ad ambo i sessi:
+
+[Fonte](http://www.camera.it/parlam/leggi/deleghe/testi/06198dl.htm)
+
+> Art. 27.
+> Divieti di discriminazione nell'accesso al lavoro 
+> (legge 9 dicembre 1977, n. 903, articolo 1, commi 1, 2, 3 e 4; legge 10 aprile 1991, n. 125, articolo 4, comma 3)
+
+> 1. E' vietata qualsiasi discriminazione fondata sul sesso per quanto riguarda l'accesso al lavoro, in forma subordinata, autonoma o in qualsiasi altra forma, indipendentemente dalle modalità di assunzione e qualunque sia il settore o il ramo di attività, a tutti i livelli della gerarchia professionale.
