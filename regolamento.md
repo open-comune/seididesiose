@@ -4,6 +4,8 @@
 
 Questo è CHIARAMENTE un "gruppo" relativo alla Città di Desio, alla sua realtà ed alla sua storia.
 
+La moderazione dei post e dei commenti, così come la scelta di accettare, rimuovere o bloccare gli utenti è ad insindacabile giudizio del gruppo degli admin.
+
 Se gli argomenti proposti non saranno ritenuti pertinenti in alcun modo, verranno eliminati.
 
 NON è gradita la pubblicità per attività commerciali private; ci sono altri gruppi appositamente creati a tale scopo.
